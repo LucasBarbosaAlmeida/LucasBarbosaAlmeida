@@ -1,4 +1,4 @@
-# Welcome!
+# Welcome! Earth.gif
 
 ## I'm Lucas Barbosa!
 
